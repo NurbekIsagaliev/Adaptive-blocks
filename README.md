@@ -1,0 +1,1 @@
+# adaptivniy_blocks
